@@ -1,1 +1,1 @@
- Welcome to Africa Language
+ Welcome to Africa Languages
